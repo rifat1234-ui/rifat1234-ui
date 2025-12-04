@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sloppy__
+- 👋 Hi, I’m @Sloopy__
 - 👀 I’m interested in Nothing particular ( maybe hot older woman and touching grass )
 - 🌱 I’m currently learning game dev, app dev
 - 💞️ I’m looking to collaborate on game dev stuffs
