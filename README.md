@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning game dev, web dev ( a bit )
 - 💞️ I’m looking to collaborate on game dev stuffs
 - 📫 How to reach me ... just dont lol
-- 😄 Pronouns: ... do i have to provide pronouns for a male human now ?
+- 😄 Pronouns: ... do i have to provide pronouns for a male human now ? lmao 
 - ⚡ Fun fact: ... i like ass more than boobs 
 
 <!---
